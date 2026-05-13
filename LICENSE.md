@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MindManager for Windows addon with best MindManager for Windows Addon | notes-integration + priority-markers. Featuring notes-integration and priority-markers,
 
 
 
